@@ -3,7 +3,7 @@
 Main Task of this Organisation / 1 MILLION Affiliate partners Movement started by [your truly Aleksei Dolgikh](https://github.com/alexdolbun/) at [Reddit where you can join, follow and WRITE your Affiliate Partner story](https://www.reddit.com/r/affiliatepartner/) in order to contribute into cheat sheet of Affiliate Partner! 
 
 
-![affiliate-partner-big](https://github.com/user-attachments/assets/945effea-560b-43bc-be0f-72a08178f7fd)
+![affiliate-partner-hacks](https://github.com/user-attachments/assets/4aba26b7-7d14-492a-a1a8-addf1ae2a181)
 
 
 
@@ -24,7 +24,9 @@ Main Task of this Organisation / 1 MILLION Affiliate partners Movement started b
 
 Affiliate partner programs are performance-based marketing strategies where businesses reward partners for driving new customers, typically through commissions on sales or leads. This report explores global networks, focusing on AWIN, Impact, TradeDoubler, Partnerize, and Rakuten, and identifies the top 25 networks based on recent data.
 
-#### Top Networks and Prominent Players
+#### Top Affiliate Partner Networks and Prominent Players
+
+![affiliate-partner-big](https://github.com/user-attachments/assets/945effea-560b-43bc-be0f-72a08178f7fd)
 
 The top 25 global affiliate networks, compiled from multiple sources, include:
 
